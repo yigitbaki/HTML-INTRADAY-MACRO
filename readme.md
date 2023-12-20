@@ -1,1 +1,2 @@
-![image](https://github.com/yigitbaki/HTML-INTRADAY-MACRO/assets/153155240/7a8b82aa-ce4c-490f-a709-95099e9263d8)
+![image](https://github.com/yigitbaki/HTML-INTRADAY-MACRO/assets/153155240/14a489ab-80d4-43fa-b8be-6410424528c5)
+
